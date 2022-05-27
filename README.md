@@ -1,5 +1,6 @@
 Kelompok 7
 Anggota :
 
-1. Arya Wahjoe Setiawan (06)
-2. Tasya Sevia Adha (24)
+1. ARYA WAHJOE SETIAWAN (06)
+2. TASYA SEVIA ADHA (24)
+3. VINKA KHARISMA ADZANIA (25)
